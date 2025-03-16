@@ -1,10 +1,10 @@
 - 👋 Hi, I’m Bitto.
 - 👀 I’m a multi tasking person who loves to try everything
 - 🌱 I’m currently learning programming
-- 💞️ I am owner of a small fan community of a roblox game
-- 📫 You can contact me thro my Email
+- 💞️ I run a small gaming and motivational youtube channel
+- 📫 You can connect to me thro my discord
 - 😄 Pronouns: He/Him
-- ⚡ I only have motivation left in me with a broken soul...
+- ⚡ My Heart Is In The Dark But I Work For Light
 
 <!---
 Bitto11pro/Bitto11pro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
